@@ -1,3 +1,2 @@
-# pogiako.com
-ANG ITIM NG TITE NI GENE
-KINANTOT NI ONG SI JAO
+mmalaki titi ni kian
+
